@@ -1,4 +1,5 @@
-How to make Chocolate Chip Pumpkin Cookies
+How to make Chocolate Chip Pumpkin Cookies:
+
 
 First you'll need the ingredients: 
 
@@ -15,7 +16,10 @@ First you'll need the ingredients:
 9. 1 large egg
 10. 2 cups flour
 
+CAUTION: Be careful when removing the cooking pan from the oven, it's hot!
+
 Steps:
+
 
 1. Combine the wet ingredients in a bowl.
 2. Combine the dry ingredients in a seperate bowl.
