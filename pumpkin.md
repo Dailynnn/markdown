@@ -17,13 +17,14 @@ First you'll need the ingredients:
 
 Steps:
 
-1. Combine wet ingredients in a bowl
-2. Combine dry ingredients in a seperate bowl
-3. Slowly stir in dry ingredients with the wet ingredients 
-4. Fold in chocolate chips
-5. Preheat oven to 375 degrees and line cookie sheets with parchment paper or grease it
-6. Bake for 10-12 minutes
-7. Allow cookies to cool
+1. Combine the wet ingredients in a bowl.
+2. Combine the dry ingredients in a seperate bowl.
+3. Slowly stir in dry ingredients with the wet ingredients.
+4. Fold in chocolate chips into the batter.
+5. Preheat the oven to 375 degrees for 15 minutes.
+6. Line cookie sheets with parchment paper or grease it with butter.
+7. Bake for 10-12 minutes until cooked in the middle.
+8. Allow cookies to cool before eating. 
 
 
 
